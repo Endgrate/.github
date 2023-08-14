@@ -1,3 +1,3 @@
-# MergeLink
+# Endgrate
 
-https://mergelink.com/
+https://endgrate.com/
